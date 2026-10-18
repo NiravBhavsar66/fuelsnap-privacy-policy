@@ -57,4 +57,4 @@ We may update this Privacy Policy from time to time. Any changes will be posted 
 
 ### 7. Contact Us
 If you have any questions or feedback regarding this Privacy Policy, please contact us at:  
-**Email:** niravb@differenzsystem.com
+**Email:** dipeshcshah23@gmail.com
